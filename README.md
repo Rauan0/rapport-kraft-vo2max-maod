@@ -1,0 +1,1 @@
+# rapport-kraft-vo2max-maod
